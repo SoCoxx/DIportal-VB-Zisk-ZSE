@@ -1,4 +1,4 @@
-<img width="871" height="521" alt="image" src="https://github.com/user-attachments/assets/987f2763-6a6a-4098-ac61-14d5e55003f3" />
+<img width="973" height="881" alt="image" src="https://github.com/user-attachments/assets/790eccb3-5a12-4a15-88f6-073598587e59" />
 
 ## 🇸🇰 Slovensky
 
